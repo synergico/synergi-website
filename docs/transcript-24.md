@@ -1,0 +1,55 @@
+#Transcript - Xuân Dung (VNPT)
+
+Ở VNPT thì chị vào từ 97, thì đầu tiên chị làm ở phòng kế toán,chuyên về công trình. Tầm 2009 thìchị về làm KT trưởng của ban quản lý dựán. 2010 thì chị làPGD của BQL dự án. Đến2014 thì bắt đầu TCC, thì thành lập thànhBQL DÁ Đông, và ban Tây.thì chị về là PGĐ ban Đông. Đến tháng 10.2015 thìchị phụ trách ban Đông.Thì đầu 2015 thì chị về trung tâm cung ứn vật tư
+
+Chị ở ban quản lý dự ánthành phố, chỉ có 1 ban thôi. ở 2 công ty có 2 ban nhỏ, thì 2 ban nhỏ nó chỉ làmnhững cái công trình gọi làdây cable. Bn lớn chị chỉ làmnhưng j lớn tập trung cho VT. Thìsau đó là sắp xếp lại thìthành 2 ban. Thì mỗi ban chỉ chia theo vùng thôi.
+
+#### 1. Trong cái điểm áp dụng 3Ps nó có ảnh hưởng j đến công việc của chị ko ạh?
+
+Do ban nó chỉ là đơn vị phụ trợ, nó ko phải là sản xuất trực tiêpnhư các Trung tâm. Khi mà trung tâm áp dụng lànó thấy ngay, là lên hay xuống. Nhưng đối với Ban, bên chị nólà chỉ tiêu khác,theo kê hkai hoạch đinh, vd như là cái người thẩm định thì nócó bao nhiêu công việc, định mức ra , 1 ngày thìlà dự kiến sẽ thẩm định bao nhiêu hồ sơ, như vậy thẩm định rathì sẽ có cáimức điểm cơ bản cho chức năng đó,thì nếu như mà làmvượt qua cái điểm đó thì P2 sẽ tăng lên.Vd vậy. Thì đó là đối với ban chị. 
+
+Khi mà 2 ban mà áp dụng 3Psthì vẫn sau trung tâm. Nó ko áp đều, người ta dựa trên Trung tâm, do chức năng của Ban khác. Khi áp vàoBan thì áp vào rồi chấn chỉnh, thì khoảng thời gian đó thìcũng áp vô thì anh em. Thực tế là chị cũng cân đối để mà cũng đừng bị quáthấp, để mà mọi ngườicũng đừng bị chênh lệch quá. Vì hiện nay mìnhcũng chưa tính được cái sản lượng mọi người như thếnào. Vì nó áp vô mình cũng có định mức , sản lượng này, người nàyra được bao nhiêu ngườikia ra được bao nhiêu. 
+
+Rồi phòng này, chỉ tiêubSC giao là cái j. Rồi lấy theo chỉ tiêu đó thìmình mới đánh giá.Thì với Ban chị thì chị giao theo kiểu là của Vthong giao về cho ban là. Vd giá trị quyết toáncủa năm nay là phải đạtbao nhiêu: Rồi khối lượng thực hiện vốnlà phải đạt bao nhiêu. Rồi từ đó chị mới bổ ra cho các tráchnhiệm từng phòng chạy là bao nhiêu. Thìphòng nào đạt chị mới đánhlluonng theo cái đó. Thì tìnhhình là vậy thôi. Thực tế nó vây đó.
+
+#### 2. Chị có nhận xét j về sự khác biệt giữa lý thuyết và khi ápdụng thực tế ko ạh?
+
+Có nó cũng có nhưng không lớn. Cái thời điểm TCT, là cáiban cũ nó ko áp dụng, nótính theo lương cũ mọi người.Thì lúc thànhlập ban mới áp dụng luôn.Dẫn đến là lúc đócái j nó cũng mới, thế làtâm lý của mọi người người ta phải hoànhap với cái mới. Thứ2 là đối với cái công việc đặt ra thì mìnhphải sinh haot tư tưởng anh em rất kỹ. Cáichuyện là mình phải sinh hoạht vì nólà cơm áo gạo tiền anh em. Công việc la giao mục tiêu chứ ko phải như công nhân là giao sản lượng. Nhưng đối vớinày là mìnhphải theo mục tiêu. Khi đạtđược thì lương anh sẽ ntn. Còn ko đạt thì ntn. 
+
+Đương nhiênlà trong lúc thìcũng có người ày tínhnày người kia tính kia. Người ta nói là ơh tui làmvầy thì sao ko có. Cónhững anh em ngay từ đầu người ta phản ứng. Đương nhiên làphải có vì cơm áogạo tiền mà. Cái hệ thống công đoàn nó phải xuyênsuót. Mình ko cần đợi, của chị open, chị yêu cầu anh em cóvướng cái j thì nóitrực tiếp với chị, chị ko muốn anh em đi nóilinh tinh, vì nó sẽ khấy động tâm lý người khác. Chị nghe tin thì chị tự lên hoặc người ta tự nói. Nhưng tốt nhất là lãnh đoạ ngay trực tiếp cấp đó người ta sẽ sinh hoạt làm việc, chị sẽ nóirõ. Vì khi chấm điểm cái bảng lương ra nó sẽ có cáimục mục mục. Và đưa chongười ta thấy người ta tâm phục khẩu phục thìrất ok. Còn người ta chưa thì mình lãnh đạo ngay chỗ đó mình xử lý lưôn. vì nó chưa rõ.
+
+#### 3. Trong cái quá trình giao việc thìchị thực hiện ra sao ạh?
+
+Mình là đơn vị hỗ trợ, thành ra cái nhu cầu, mìnhphải sinh hoạt cho anh em hiểu. Khối của mìnhlà bên kia tiền tuyến mình làhâu phương. họ yêu cầu mình phải đáp ứng. Cho nênlà ởtrong VT này lươngngười này biết người đó, trong chương trình. Thì người ta kể cả bênkia sao chị cũng ko biết. Vìgiao mật. Nhưng nhiệm vụ của mìnhthì mình phải làmcho đúng. Trên tinh thần làbên kia yêu cầu thìmình phải hỗ trợ. Vì bên mìnhlàm công trình mà.Bên kia mà họ yêucầu là, vd. thiết kế chị mới tới đâythôi, nhưng nhà người dântới đây. Thfi trung tâm yêu cầu mình kéo thêm1 miếng nữa để giúp nó. 
+
+Như vạy đối với chị là j. Là phátsinh đúng ko. Những cái chuyện này ko phải cóngoài hiện trường. Thì quân của chị giám sát phải hiêu,phải làm sao có lơị nhất cho Trung tâm. Thì gọi về xử lý ngay. Hiện nay thì mìnhkéo sẵn ròi. Trung tâm chỉ có đấu gắn thôi Thìkhi mà vây, thì tínhcái doanh thu đó cho người ta. Thì mình sẽ trong cáiBSC, chị sẽ được 1 ít trong cái doanh thu đó, nó vậy. Nênminh phải quán triệtanh em thế.
+
+Khi 2 ban nhập lại hay táchra thì khi nhập lại, thì nó dư người. Đối với dư người thì cácsếp có chính sách.Khi chọn lại, thì hiện tạih cũng ko định mức cho 1 phònglà bao nhiêu. Mìnhphải chọn tinh nhuệ. Trong đầu làdnah sách tinh nhuệ và danh sách ngắn ở dưới nữa. thì những người nằm trong đây mà ko cố gắn thìphải luân chuyển sang công táckhác. Thì lãnh đạo trong phòng trong đầu bao h cũng phải như thế. Chứ ko có mà tới lúccần người luân chuyển, thì lại nói là, sao ko nóitrước, ko có người đểbàn giao. 
+
+Không có nói làko bàn giao được, kể cả lãnh đạo.Như chị nè. Tách nhập 2 ban, nhập 2 ban chỉ cáhc nhau 1 tuần lễ thôi. Là mìnhphải qua công tác mới. Quacông tác mới, thì chị vẫn phải làmsong song 2 công việc. Hiện tại vẫn còndấu vẫn giải quyết công việc 1 ít.Những cái tồn tại lại. Công việc mớivẫn phải giải quyết, nhưng màphải đáp ứng dược cái nhu cầu của tập thể mà sếp đưa ra. 
+
+#### 4. Tức là vẫn có giai đoạn chuyển tiếp đúng ko ạ? Ừ đúng rồi. Theo như chị thấy quá trìnhchuyển đổi 3ps và tái cơ cấu. Theo chị thấy có sự thay đổi nào về cung cách làm việc ko?
+
+Thực ra làđối với lãnh đạo thì cái áp lực công việc nónặng nề hơn nhiều. Đối với nhiều cấp mà.Đối với lãnh đạo đó thì cấp của VT, thì chị ko bàn, nhưng màthấy cái lực các sếp ápvề cho mình. Mà khi cácsếp kiểm tra thì mình phải làm. Nóiđơn giản của ban cũ của mình thì làm vìtrách nhiệm của mình, thì thấy mục tiêukế hoạch năm sau hơn năm trước. Thìmình cũng thấy mình đạt rồi. Nhưng theo cái mới thì mục tiêunó phải đạt từng quý từng tháng từng năm. Nó đặt ra mục tiêu rất rõ ràng. Nếu màcái này, chị nóivề công trình của chị.300 trạm BTS trong 30/6 phải xong. 
+
+Làđặt ra rồi mà chị triệutập anh em làm là bất kể thời gian . Để chi, mụcđích đó. Mọi người chưa quan tâm như thế nào. Nhưng khi chuyển đổi 1 phát là cáitâm lý mọi người là chuyển đổi.Để chi, họ biết nếu ko làm là sẽ bị luân chuyển. Và người ta sẽ có cái cảm nhận làthay đổi đã đến rồi. Và mọi ngườiphải có tâm lý thế. Đó là cấp lãnh đạo của chị là như vậy. Còncấp nhân viên thì họ cũng phải chạy theo. Ngườinào chạy ko kip thì phải luân chuyển.
+
+#### 5. Với trường hợp luân chuyển , liêu người mới về chưa quen việc có ảnh huỏng đến hiêu quả chung ko ạh?
+
+Đối với mỗi lãnh đạo thìđều có 1 cách quản lý khac nhau. CHị thì chị ko biết làcác LĐ khác ntn. Nhưng tâm lý của chị thì chị là1 chuyên viên đi lên.Cho nên là ko có1 cán bộ nào làchị cần quá đến mức mà ko đổi được, đó là tâm lý của chị. Thứ 2 là chị yêucầu các trưởng phòng lúcnào cũng phải đào toạ cho anh chị em. Tại vì nó tránhtrường hợp, ở nhà nước mình có cáitrường hợp là ko có ôngchuyên viên ổng làmcái này làko tìm được người thay. Cái cảnh đó mìnhtháy nhiều. Với chị chị yêu cầu cái bộ phận đólà 1 người người ta sẽ làm theo cái yêucầu mới của sếp là 1người biết2 3 công việc, trong lúc làm công việc hiện tại thì phải học công việc mới. 
+
+Thì lãnh đạo phòng phải giao song song việc, cũng phải giao thêm việc mới. Dĩ nhiên là họ sẽ chậm hơn việc đang làm, nhưng sẽ cóngười kèm công việc mới này, để đúng tiến độ của chị, ko đúng thìchị xử lý luôn cả 2 người. Đóthì chị đặt vậy, kể cả lãnh đạophòng cũng dính chùm.Nên chị đặt mục tiêu, thời gian, thì cứ theo đó màchạy. Mà cái người này,thậm chí mình nóitrong tình huống thực tế, người tacũng chạy ko kịp, thì mình nói làem lên đây để chị xử lý. Cái này hướng xử lý ntn, chỉ đạo rõ, còn ông làmko được, mình nhìn thấy là ko được nữa rồi. Lập tức đỏi người. Để chi, thứ nhấtlà chị làm Ban, tiến độ nó áp vào công trường, nếu ko đáp ứng thì chị bể tiến độ ngoài hiện trường thìnó lớn chuyện. 
+
+Chứ ko như trungtâm, bức quá  ko được Fiber này thìmốt làm cái khác.Còn bên chị thìko có, phạt rất nặng, và uy tín của VNPT sẽ bị đánh giáchỗ đó. Bên chị nóko có cho chị kiểu là người này ko córồi quen biết lằng nhằng. Đólà tính chị làmviệc nó vậy .Mọi người nói chị dữ là vậy.
+
+#### 6. Theo chị là cả quá trình dàivậy, yêu tố nào đã giúpmình thành công?
+
+Chị nghĩ nóvầy. Nói xã hội này kia thìto lớn quá. Thực tế thì tâm lý của anh em VNPT là cáibộ máy của nhà nước nóquá nặng nề đi, nó chuyển, mà hỏi em rùngmình 1 cái thìnó rât là lâu la, trong khi Viettel với FPT nó đánh tới hết rồi. THực tế khi mình sơ kết tổng kết thì ngàyxưa mình đứng đầu, nhưng h thị phầngiảm xuống. Thấy rõ, khi em đi hợp, từng lãnh đạo khi đi họp thì cảm nhận được mình thua người ta rồi nè, bắt đầu về họp với các cấp công nhân. Hồi đó mình đi đâu cũng tự hào nhá,tập đoàn BCVT nhá. Nhưng bây h Viettel qua mặt rồi, lương mình thấp nè. 
+
+Viettel đi làmviệc với nó rất rõ ràng, ko được đuổi ngay. Ko phảinhư cái kiểu mình làtình cảm anh em gia đình bệnh hoạn. Ko kiểu nó. Nó làquân đội, đi họp trễ thì quất đuổira khỏi. Chị đi họp với Viettel mìnhbiết mà. Đó cácanh em đi làm việc, vachạm với thi trường sẽ thấy rõ . Thực tế làtừng con người cũng nhận thấy làmình cần thay đổi, Nhưng họ kobiết là phải thay đổi cái j , từ đâu. thì lúc đólãnh đoạ tự đưa ra 1 cái xu hướngthay đổi. Định hướng rất rõ ràngthì anh em bắt đầu theo đó. cứ đi theo thôi. 
+
+Chị nghĩ vậyđó, cứ chỉ đạo thì làm. Nhưng lúcđó mình cũng thấy rõ thị phần có tăng lên,những năm đầu ko nhiều, nhíchnhích, nhưng những năm gần đây mình thấy rõ là mìnhcó hiệu quả, còn lương tăng hay giảm thì ko mấy quan tâm. Nhưng trên thị trường thìthấy là nhà nước mìnhquan tâm đến thương hiệu của mình. Bắt đầu quay lại, ngày xưa mình dạng j, giống như là mình ngủ yênvậy đó. Mình sướng rồi, mìnhko cần làm, độc quyên rồi. CHị nghĩ vậy thôi. Thực tế.
+
+Thị trương sức épnhiều. Đứng đầu tập đoàn sức ép lớn. Tập doàn nó chỉ có2 đơn vị, mà chị nói thì VNPT HCM, doanh thu nó cũng hơn HN nhiều. mà suốt ngàybây h đi tới đâu Viettel với FPT nóđánh mạnh mà. Bênchị văng ra luon. Cho nên các sếp , mình cũng nhìnthấy. Thật ra nhân viên họ koquan tâm tới nó sẽ thay đổi,nhưng mà họ quan tâm là nếu mà tôi làmtheo định hướng của sếp, lương của tui sẽ nhiều hơn. Đối với công nhân người tachỉ hiểu đơn giản vậy thôi. Lương nhiều hơn, tui làm như thế nàythay đổi , đúng năn sautiền lương nhiều hơn thật, đúngrõ ràng vậy rồi, tui có cực hơn thật . Rồi sau đó những chính sáchmình đưa ra, nếu ông làm 10 ông huong 10, còn ông kia ông làm 2 thì hưởng 2 thôi. Thìtrong 1 cái đội thì họ thấy rõ những cai đó với nhau. 
+
+ 

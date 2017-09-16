@@ -1,0 +1,61 @@
+# Transcript - Anh Khoanh (VNPT)
+
+Công tác tại VNPTtừ 93 đến h là được 22năm. Năm 93 thì sau khiđược nhận vào làm lúc đó là BDTP, lúc đóanh được phân công về công ty điện thoại. Thìanh được phân công về chi nhánhgia định. Hồi xưa gồm có 3 chi nhánh , sài gòn,chợ lớn, gia định. Lúc về thì anh thực tập 3 tháng. 3 tháng thìhồi xưa gọi là công nhândây máy, thì mới cùnganh em ra ngoài thực hiệncái công tác làlắp đặt và sửa chữa điện thoại. Lúc đó nócũng chưa phát triển vềbăng rộng mấty. quá trình anh đi làm thìcũng nhận được sự giúp đỡ củaanh em người ta đã làm lâu năm,cũng chỉ dạy cách sửa cách tiếp xúc , cáchhàn , ròi cáchdò dây, để mà mìnhkhắc phục nhanh, mà cho khách hàng người ta sử dụng điện thoại. 
+
+Thì lúc đó mà nó giao thời khi mà lên cái tổng đài 45k số. Thì hầu như khách hàng người ta sử dụng cái điện thoại của BD thành phố rất nhiều , trong quá trìnhlàm thì ko phải riêngsữa chửa mà còn có thi công cáp.Những cái hộp tập điểm để mà kéo dây về nhàkhách àng. Thìanh cũng được mấy anh hướng dẫn từ đànanh, các anh chỉ dạy cho. Sau khi thựctập trong 3 tháng thì mấy tổ mới tâp trung lại đánh giá, thìngười ta góp ý kiến.Những j mình chưa làm được, cònnhững j mình làm đượcc thìnên phát huy. Đúnglúc đó làtháng 6 thì anh được nhận chính thức làm nhân viên. Thì anh công tác cho đến h. 
+
+Thì trong quá trìnhtách thì ra tổng đội thìcung được luân chuyển, đi rất nhiều nơi. Thìlúc đó làanh chuyển ra thì đi gò vấp. Lúc đólà có cáiđội gò vấp. Thì mìnhchuyển về gò vấp, tânbình, xong cái về gòvấp làm đội trưởng, ngày xưa là tổ trưởng 1 tổ. làm 2,3 năm thìluận chuyển về lại đây. H thànhlập trung tâm viễn thông tân bìnhthì nâng cấp thành đội.NÓI chung về đội 2 la cũng lây rồi. Ở trungtâm này có 7 đội viễn thông, 1 đội ứng cứu. 
+
+#### 1. Cấu trúc 1 đội ở đây là sao ạh?
+
+1 đội tuỳ theo,do địa bàn quản lý, do đầu số quản lý,cái thứ 3 là căn cứ trênđầu số quản lý và doanh thuthì trung tâm mới phân về. Để vừalàm để đảm bảo doanh thu và đồng lương của anh em trongđội. Thì đối với đội anh thì tổng hết luôn là 17 người. Trung bình bình quân 1 đội khoảng 17 người. có đội có12 người. 1 đội là mô hình cấp toán thôi. Thì1 trạm gồm 2 toán, 1 toán 4 nhân sự. Vd như anh quảnlý đây thì gồm 2 trạm là Lê Thị Riêngvà Kỳ Hoà thì,mỗi trạm gồm 2 toán, 1 toán: 4 nhân sự, thì người ta thực hiện lắp đặt sữachữa bảo trì rồi thựchiện nói chung tất những việc đượcgiao. Anh đang làm đội phó phụ trách.
+
+#### 2. Anh có nhớ gì về thời điểm chuyển đổi 3Ps ko ạh?
+
+Khoảng 2 năm rồi, cỡ 2013 là bắt đầu chuyển. Đôi lúc làtại vì có cáiquá trình VTTP triển khai thì tụi anh bắt đầu thực hiện từ từ dần dần cho đếnkhi ổn định hết thì chuyển thẳngluôn. Bọn anh triển khai 3-4 thánglà hoàn tất.
+
+#### 3. Trước khi chuyển đổi thìtình hình anh em làmviệc như thế nào ạh?
+
+Trước quá trình chuyển đổi thì hầu như cái tiềm thức ăn sâu vô anh em là, thíchthì làm màko thích thì ko làm.Ý là h tôi ko làm thìbưu điện cũng trả nhiêu đó. Từ lúc chưa 3Ps, suy nghĩ của anh em còn chậm và ù lỳ lắm.Chưa xác định được chuyển qua 3Psnhư thế nào. Lúc đólà sửa phiếu rồi đặt mới rồi là hầu như lúc chưa chuyển thìrất là ù lỳ, công việc là ko xác định. Rồi thích thì làm ko thíchthì tui ko làm rồi, nókiểu như ko vô 1 cái khuôn khổgò bó. Giốgn như ngàyxưa bao cấp đó nên anh em ko có suy nghĩ cái vấn đề đó.Thì trong 1 thời gian sau khichuyển sang 3Ps.
+
+ Vì 3Ps được cái hay là sau khi màchuyển thì nó giao cáivấn đề đó, mà trong cáivấn đé đó làvấn đề khác. Mà trong cáivấn đề anh thực hiện công việc màanh làm sai, là nóthể hiện ra trong chương trìnhhết. Điểm nó cũng cộngtrừ ra cho anh hết thì nó dẫn đến cái ý thức của anh em giật trở lại. Thì vd như sau khi chuyển xongthì có người ở cùngtrong đội nói: Tháng này tôi lãnh được 1triêu, ông kia 1 triệu 2. Nói ủa ngày xưa nó bằng h sao nó chênh lệch. Thìnó thể hiện ra cái trách nhiệm của người làm. Thìnên khi cái anh đómuốn hỏi, mà  ảnh chưa hiểu hết về cấp đội thì ở đâyanh sẽ cho coi về  cái ngàyanh làm được cái j. cáinày anh làm ko đúngh. thì cái tiền anh nàyđược hưởng. 
+
+#### 4. Anh có noi là áp lực, anh nói cụ thể hơn được ko ạh?
+
+Áp lực đúnglà có áp lực, Nhưng anh em khi đổi qua thì cáiđồng lương nó khác, nó kháchẳn cái lương mà giống như chia đều ngày xưa. Thìvd như cái ông lớn tuổi đi. Thì ổngbậc cao thì ứng nhiều lúccao hơn thằng trẻ. Nhưng bây h trẻ làmnăng suất có, công việcngười ta chạy, thì cũng nhưlà người ta tiếp thu nhanh hơnngười cũ, thì trả lươngđúng ra là công bằng hợp lý. Ờh anh này làmnhiều, ảnh hương lương đúng sức bỏra. Còn anh lớn tuổi, mình ko nói mìnhlà những người lớn hay ko.Nhưng sự thay đổi của công việc hằng ngàyđòi hỏi mình cũng phải thay đổi theo, còn nếu anh ko thay đổi, đáp ứng được thìloại anh thôi. Để người trẻ lênlàm người ta hưởng xứng đáng với cái lương của người ta.
+
+#### 5. Anh có nhận xét j sau khi đã chuyển đổi ko ạh?
+
+Sau khi mà chuyển ra mà kể cả đã ứngdụng cái chương trình mới của viễn thông đó. quy hoạch lại rồi chia theo toán theo người quản lý , thì cáiý thức nhận thức của anh em làmrất tốt. Dù là áp lực nhưng có cái làvd như là ngôi nhà của mình,phải quản lý rồi sữa chữa, duy tu thìnó nằm trong góp gémđó. Thì vídụ như là chương trình bây h anh em vo coi được doanh thu. Thì các đội bây h, giao doanh thu từng tủ cáp của anh em. Thì tháng nàycoi là đó, tại sao lương tôi lại bị sụt, doanh thu cái tủ đó tui quản lý, lý do tại sao thue bao nó rời mạng, Những cái đó nóăn vô đầu anh em. 
+
+H anh em đónhiều lúc bây h giao vài toán. Sángnay toán này cóphiếu người ta lắp đặt, vô mìnhtạo doanh thu mới, còn cũ mình bắt buộc phải giữ. Thì sao toán nàycó mà toánnày ko có. Ko cóthì anh phải tự đi kiếm. Tự đikiếm tự tiếp thị tự chuyển đôi. Cấp đội người ta sẽ hỗ trợ anh về phiếu công tác. Rồi giấy tờ sẽ hỗ trợ anhhết. Về vật tư đầy đủ, nhưng đầu vao mấy anh phải đi kiếm, tạo doanh thu mới thì mới có lương, chứ suốt ngày, cácanh cứ gặm nhắm doanh thu hiện hữu miết thìcàng ngày cànghết àh. Thì đóthì anh em cũng nhận thức được.Nhiều lúc ngồi uống cafe xong vô coithì nói :Trời doanh thu nó sao sao, cóhàng tuần. Thương thường tui nói anh em coi hàng tuần. Tháng thì ko biết sao, nhưng Hàng tuầncoi thì biết sụt giảm của những cái tủ cáp, màtui phân quản lý. 
+
+Vd tuần trước là 3 triệu đi, sau tuần này sao thấydoanh thu nó mất 100k.Thì vô đó coi anh bị mất cáij. Mất cái đt, mega hay cái j. Thì dẫn đến doanh thu bị giảm. Thì anh em coi biết rồi cố gắnglàm. Cái chương trìnhđó là trong quátrình triển khai 3Ps, thì VT cho các anh em vô coi, xong chia ra từng toán quản lý khu vực. ANh em coiđược tân được doanh thu, tận được tủ cáp,hiện tại quản lý bao nhiêu thuê bao, chương trình rất hay. Anh em quản lýkhu vực nào  tự vô coi doanh thu của mình bao nhiêu,tủ đó bao nhiêu tiền gồm bao nhiêu, làcoi được hết. 
+
+Còn cái hay nữa em, là trong quá trìnhmà sửa chữa đó. Thì anh nói như ngày xưa đó,thì anh nói làkhách hàng lớn đi, vd ngân hàng. Ông ngân hànglà khsch hàng lớn, người ta trả mình 1 đường truyền đó làrất nhiều tiền. Thì đòi hỏi cách phục vụ của mìnhvới người ta là mình chỉ sửa 2 h. Thì ngày xưa đólà anh em cứ chạy chạy sửa sưa,nhưng ko quan tâm là mấy h choxong cho khách hàng. Nhưng từ khi làm 3Ps, và cáichương trình mới là anh em xácđịnh. Những khách hàng lớn: 2h, ko cần biết anhem có thể phân ra cái thời gian sửa chữa cho khách hàng nhỏ hơn. Thì mình phải tranh thủ sửa cái khách hàng2h này trong vòng đócho hoàn tất. Anh em ý thức được nhưvậy. Sau khi  minh giao trên chương trình, thìanh em h đang xàismartphone nè. Thấy phiếuđó thì tự động trong vòng2 h là phải sửa mấy anh đó trước. Nguyên tổng thời gian các anh em làmcũng ko được để vụt giờ. Cho dù 24 tiếng cũng ko được để quá h.
+
+#### 6. Anh em trong đội có nhận xét j về 3Ps này ko anh?
+
+Nhận xét thì lúc đầu anh em hơi bỡ ngỡ, chia lương rồi sản phẩm rồi.Tại anh làm sản phẩm bao nhiêu thì anh mới được nhận tiền của anh. Rồi anh em bỡ ngỡkhoảng 1,2 tuần thôi. Rồi mìnhgiải thích rồi anh em nậhn lương đó. Ngày nàyanh nghỉ, người ta đi làm trong vòng 1 tháng, cònanh nghỉ mấy ngày, thì sản phẩm của người đi làm sẽ cao hơn người nghỉ,nhưng về chế độ thì mình vẫn sẽ trả người ta caohơn. Thì người ta nghỉ bù. Thì người ta nghỉ phépj đó mình vẫn sẽ trả. Thìcó điều là anh em người ta ko cần thiết nghỉ. Nói chung là vẫn làmtheo đúng theo hợp đồng lao động. Thì người ta đi làm nhiều -> sản phẩm nhiều-> lương cao thì cũng kotrách được.
+
+#### 7. Về mặt năng suất lao động thì ra sao ạh?
+
+Năng suất đương nhiêntăng hẳn lên. Nếu mà ở góc độ đọi. chạy công suất trên 95%, có khi 100%. Lý do là vậy, hồi xưa mìnhlàm 7h30 đến 4h30. Trong cái 3Ps này chia ca ra, vẫn đủ h làm việc trong tuần theo quy định. Chia ca ra thì nhiều lúc cóanh em làm đến 6-7h tối. Thì anh em trong toán tự sắp xếp chia ra để mà cái phiếu kháchhàng cần sửa chữa, thì anh em tự chia ra để làm. Năng suất tăng lên -> sản phẩm có thì đồng nghĩa với lương anh cao. Thì lương ảnh cao thìnói chung là anh em nóiđúng. Cao hơn ngày xưa rất là nhiều. Thứ 1, thứ 2 là tuy nócực chút, nhưng đồng lương nó xứng đáng với công suất anh em bỏ ra.
+
+#### 8. Anh có thể kể thêm về cái khoảng thời gian mình vừa ápdụng, anh kể thêm kỹ cho em được ko?
+
+Trong thời gian đó.Trước khi triển khai để hoànchỉnh luôn đó, thì lúc đóanh em mới nói là cái sản phẩm đó,sản phẩm mình chấm trên hàng tháng.GIữa anh em này và anh em kia, dao động sao, tôilàm cái này,tôi làm cái kia. Tôi ko được đi đặt, tôi được vầy, tại sao ôngđược đi đặt ổng được nhiều hơn tôi. Nhưng thực chất về quy đổi, lúc đó toánmình mới hợp lại mình mới nói lànếu anh em đồng lòng thì nói chung là,người nào nghỉ, thì sản phẩm người đó ít, người nào đi làm thì..nói chung là mìnhphải chia cho anh em đó , mình phải tự chia lại cho nó có sự công bằng. Thì  bảo là ừ ông lfm vậy được. Thìhoang mang giữa cái sản phẩmcủa cái người này làmra mà so sánh với nhau. Tại sao tui làm cóđược vậy mà ông phân công vậy. Thìsau đó trong quá trìnhchuyển đổi là no hoangmang cái đó. 
+
+Còn vấn đề lương đó thì lương thì VTTP trả đủ hết nhưg về đội mình phải phân ra, phân ra thì la giữa anh nàylàm tốt anh làm ko tốt. Thìmìh phải phân. Có ôngnói ủa sao ông chia kỳ vậy thì mình phải đưa họ coi. Vì phân công quyền thì chỉ cócấp đội vô coi được, còn các ảnh thì chỉ coi của ảnh thôi. Thì ảnh ko biết là bị trừ ngày nàynghỉ, là phải lấy cộng qua anh này. Thì sau khi 1 thánglãnh lương thôi thì anh em đó , có trao đổi , thìmình mời công đoàn lại họp và giải thích.Mình chứng minh ra đso, tại vì mình cóbảng chấm công, để cuối thángmình lưuu lại đó rồi họp lương anh em. Thì đây là bằng chứng để nóichuyện. Mất tháng đầu thôi.về sau xác định được thôi.
+
+#### 9. Theo cá nhân thì vị trí chênhlệch, trong khi chuyển đổi thìhọ có ý kiếnj ko ạh?
+
+Giữa cấp giámđốc và mình thìmình ko nói tới. Mìnhchỉ nói nhân viên ở trong 1 toán.Cấp đội là ở trên đánh giá.Còn nhân viên ở trong đội nàydo mình đánh giá.Vd đánh giá thídụ 300 diểm đi, thì là max là 300 đi. Thìtrước khi mình đánh giá mìnhđưa 1 test. Thì cái anh đó làmđược j thì chép vô trong đó.thì mình vô chương trìnhmình chép vô trong đó.nó vô thang điểm. Thì sau khi anh em test xong mình mới vào mìnhđánh giá. Anh này tôi thấy về trình độ vi tính anh chưa đạt mức 3, anh chỉmức 2. Ổng mới nói là sao anh biết.. thì mời ảnh qua máy làm việc cho tui, ngưỡng 3 là soạn thảo văn bản rồi... ảnh ok hết. Nó có 1 sự công bằng. Vd những người người ta được. Thì thang điểm đánh giá P3 phải cao hơn. Còn P1 làcố định rồi. THì nó là 117 P3 làMaximum. 
+
+Đối với toán trưởng là 117. ko vượt ngưỡng đó. Còn nhân viênthì ônglà 105, 100, vd vậy, thì mình ko chấm càobằng. Như vậy có chênh lệch để khuyến khích làm việc. Vd anh muốn bằng 110 thì phải làmviệc để được giống ông 110.. Thì3Ps nó hay được vậy. Triển khai đượctới vậy. Cứ 3-6 tháng minhd đánh lại điểm. Chương trình nó ghi rõ, phải in ra cho anh em đọc hết. Khi đánh lại anh em tự đánh đi. Ai cũng đánh 100% hết nhưg khi giải thích hok đồng ý.
+
+#### 10. Khối lượng công việc của anh ở cấp đội so với ngày xưa như thê nào?
+
+Ngày xưa thì thôi h ko nói. Nhưg so sánhhiện h nó vừa nhiều vừa áp lực. Thì áp lực làdo mình. Mà mìnhmuốn nó nhiều thì mìnhphải phân chia ra nhiều công việc. Mà áp lục hayko thì do mình thôi, chứ ko ai tạo áp lực cho mình.Cũng phải phân ra, áp lực thì áp lực. Ai bị stress thì cũng phải phân ra. Nhưng mình cũng phải ngồi phân tích chia ra làm, chứ h cáij cũng nói áp lực áplực cuối cùng ko giảiquyết được j thì dẫn đến áp lực hoài.
+
+ 
