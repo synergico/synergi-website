@@ -1,5 +1,5 @@
 var doc = docute.init({   
-    url: 'http://notebook.synergi.co/',
+    url: 'http://notebook.synergi.co/#/',
     plugins: [
         evanyou(),
         docuteIframe({
