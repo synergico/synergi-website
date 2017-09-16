@@ -7,7 +7,6 @@ var doc = docute.init({
 
         })
     ],
-    home: 
     nav: [
         // homepage
         {title: 'Home', path: '/README'},
