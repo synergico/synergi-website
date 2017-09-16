@@ -1,5 +1,5 @@
-var doc = docute.init({   
-    url: 'http://notebook.synergi.co/#/',
+var doc = docute.init({
+    landing: 'landing.html',   
     plugins: [
         evanyou(),
         docuteIframe({
@@ -9,7 +9,7 @@ var doc = docute.init({
     ],
     nav: [
         // homepage
-        {title: 'Home', path: '/README'},
+        {title: 'Home', path: '/'},
         {title: 'Setting', path: '/settings/settings'},
         {title: 'Work Station', path: '/docs/list'}
     ],
