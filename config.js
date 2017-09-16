@@ -11,7 +11,7 @@ var doc = docute.init({
     ],
     nav: [
         // homepage
-        {title: 'Home', path: '/README'},
+        {title: 'Home', path: '/'},
         {title: 'Setting', path: '/settings/settings'},
         {title: 'Work Station', path: '/docs/list'}
     ],
