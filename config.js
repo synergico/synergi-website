@@ -1,4 +1,5 @@
 var doc = docute.init({
+    url: 'notebook.synergi.co/',    
     landing:{
         source: 'landing.html'
     },
