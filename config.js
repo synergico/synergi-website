@@ -1,5 +1,4 @@
-var doc = docute.init({
-    url: 'notebook.synergi.co/',    
+var doc = docute.init({   
     landing:{
         source: 'landing.html'
     },
@@ -12,7 +11,7 @@ var doc = docute.init({
     ],
     nav: [
         // homepage
-        {title: 'Home', path: '/README'},
+        {title: 'Home', path: '/home'},
         {title: 'Setting', path: '/settings/settings'},
         {title: 'Work Station', path: '/docs/list'}
     ],
