@@ -1,7 +1,4 @@
 var doc = docute.init({   
-    landing:{
-        source: 'landing.html'
-    },
     plugins: [
         evanyou(),
         docuteIframe({
