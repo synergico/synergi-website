@@ -9,3 +9,6 @@
 .sidebar-toggle{
     background-color: hsla(48, 17%, 94%, 0.86);
 }
+body{
+    font-family: 'Varela Round', sans-serif;
+}
