@@ -4,9 +4,6 @@
     padding: 3px 10px;
     font-size: 10px;
 }
-.main, .sidebar, .header{
-    background-color: #f3f2ee;
-}
 .sidebar-toggle{
     background-color: hsla(48, 17%, 94%, 0.86);
 }
