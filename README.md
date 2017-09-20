@@ -1,5 +1,6 @@
 ---
-toc: true
+title: Welcome to the Notebook
+sidebar: false
 ---
 # Lorem ipsum
 In est tortor, tincidunt vitae elit at, ultricies tincidunt magna. Aenean suscipit ante sapien, quis sagittis felis efficitur feugiat. In arcu elit, hendrerit vel varius eget, elementum vitaelectus. Phasellus ut purus commodo ante iaculis molestie. Integer turpis felis, pellentesque eu dignissim vel, sodales vel metus. 
