@@ -1,6 +1,13 @@
 var doc = docute.init({
     plugins: [
         evanyou(),
+        docsearch({
+            apiKey: '1d9aabba648aa17f1ec0ac99f4f21f54',
+            indexName: 'synergi',
+            // this plugin requires a url too
+            // it indicates where docsearch fetches contents
+            url: 'http://notebook.synergi.co'
+        }),
         docuteIframe({
             prepend: '<script src="https://unpkg.com/vue@2.2.2/dist/vue.min.js"></script>'
 
