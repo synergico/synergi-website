@@ -1,6 +1,5 @@
 var doc = docute.init({
     plugins: [
-        evanyou(),
         docsearch({
             apiKey: '1d9aabba648aa17f1ec0ac99f4f21f54',
             indexName: 'synergi',
