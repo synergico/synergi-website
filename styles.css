@@ -8,7 +8,7 @@
     box-shadow: 0 8px 16px rgba(0,0,0,.1);
 }
 .sidebar-toggle{
-    background-color: hsla(48, 17%, 94%, 0.86);
+    background-color: transparent;
 }
 body{
     font-family: 'Linotte', sans-serif;
